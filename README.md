@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sushi0452
+- 👋 Hi, I’m @verygoodvetr
 - 👀 I’m interested in - Coding ofc :)
 - 🌱 I’m currently learning - Python
 - 💞️ I’m looking to collaborate on - AI projects
