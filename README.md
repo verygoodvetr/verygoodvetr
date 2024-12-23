@@ -2,4 +2,4 @@
 - 👀 I’m interested in - Coding ofc :)
 - 🌱 I’m currently learning - Javascript, Python
 - 💞️ I’m looking to collaborate on - AI projects
-- 📫 How to reach me - Discord: verygoodvetr (i will probably not respond tho)
+- 📫 How to reach me - Discord: kurwakebab_ (i will probably not respond tho)
